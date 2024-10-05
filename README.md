@@ -3,7 +3,7 @@ Homework-3
 
 [Cơ bản]1. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077288825
 
-[Cơ bản]2. Luyện tập nhóm lệnh motion:
+[Cơ bản]2. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077295233
 
 [Cơ bản]3. Luyện tập nhóm lệnh motion:
 
