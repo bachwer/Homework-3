@@ -13,12 +13,12 @@ Homework-3
 
 [Khá]6. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077399970/
 
-[Giỏi]7. Luyện tập nhóm lệnh motion:
+[Giỏi]7. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077407640/
 
-[Giỏi]8. Luyện tập nhóm lệnh motion:
+[Giỏi]8. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077410815/
 
-[Xuất sắc]9. Luyện tập nhóm lệnh motion:
+[Xuất sắc]9. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077413586/
 
-[Xuất sắc]10. Luyện tập nhóm lệnh motion:
+[Xuất sắc]10. Luyện tập nhóm lệnh motion: https://scratch.mit.edu/projects/1077424739/
 
 
